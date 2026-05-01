@@ -46,7 +46,7 @@
 ---
 
 ## 📄 Resume
-👉 [View Resume](https://drive.google.com/file/d/1HBDXuFIch2JC1jWoo8hOe7Blg27x-qvr/view?usp=sharing)
+👉 [View Resume](https://drive.google.com/file/d/1PtcI86_4GDXf8iBo6fMjPxj5Pr1ZIT4E/view?usp=drive_link)
 
 ---
 
